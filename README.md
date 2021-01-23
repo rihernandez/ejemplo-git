@@ -1,1 +1,1 @@
-# Richard HC
+# Richard Hernandez
